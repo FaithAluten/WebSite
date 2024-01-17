@@ -51,8 +51,3 @@
 | Missav | https://missav.com/ | 中等偏上 |
 | Netflav | https://netflav.com/ | AV界奈飞 |
 | Hpjav | https://hpjav.tv/ | 还行，凑合 |
-
-```diff
-+ 通知频道： https://t.me/ddgksf2021
-- 投稿助手： https://t.me/ddgksf2013_bot
-```
