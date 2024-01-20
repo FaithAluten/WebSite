@@ -5,7 +5,7 @@
 
 | 名称 | 影视网站 | 备注 |
 | :----- | :----- | :----- |
-| 真不卡 | https://www.ikandy.fun/ |  墨鱼一直的自用★ |
+| 真不卡 | https://www.ikandy.fun/ |  一直的自用★ |
 | Libvio |   https://www.libvio.me/ |   海外居多★ | 
 | LeZhu |   http://www.lezhutv.com/ |   群友投稿，很不错★ | 
 | 低端影视 |   https://ddys.art/ | 影视老站，YYDS  | 
