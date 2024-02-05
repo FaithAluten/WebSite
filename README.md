@@ -45,9 +45,9 @@
 | 肉漫 |  https://rouman5.com/ | 字如其名 |
 | | | |
 | **名称** | **好孩子看不见** | **备注** |
-| Porn |  https://theporndude.com/ |  一些集合 |
-| 桃花族 | http://thzu.cc/ | 论坛 |
-| Jable | https://jable.tv/ | 老司机说车开了 |
+| Porn |  https://theporndude.com/ |  算是导航网站吧，收录了很多出名的站 |
 | Missav | https://missav.com/ | 我觉得这个比下面那个可用度高一点，中等偏上 |
 | Netflav | https://netflav.com/ | AV界奈飞，可用度我觉得不如前面那个 |
+| 桃花族 | http://thzu.cc/ | 论坛 |
+| Jable | https://jable.tv/ | 老司机说车开了 |
 | Hpjav | https://hpjav.tv/ | 还行，凑合 |
